@@ -1,1 +1,1 @@
-**THIS IS DEPRACATED. FOR THE NEW DOWNLOAD, GO TO** theminecommander.github.io **.**
+**THIS IS DEPRACATED. FOR THE NEW DOWNLOAD, GO TO** theminecommander.github.io**.**
